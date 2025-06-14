@@ -1,1 +1,0 @@
-# effectiive.hackathon.celestia
